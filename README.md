@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Markyyylol
+- 👀 I’m interested in Skripting Minecraft
+- 🌱 I’m currently learning Skripting Minecraft
+- 💞️ I’m looking to collaborate on Minecraft
+- 📫 How to reach me? Discord, Marky#1548
